@@ -1,0 +1,3 @@
+This reposatory is of any and all traning materals and presentations ive made. NOTE: Read licence file before downloading any and all materials....
+
+WHAT IS IN THIS  PUBLIC REPOSATORY 
